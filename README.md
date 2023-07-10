@@ -1,0 +1,1 @@
+# yoktez_makale_verileri
